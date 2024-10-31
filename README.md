@@ -1,1 +1,2 @@
-# jae
+# Welcome to My README thing
+My name is Jae Tabobo-Cabanayan and I am really into music these days such as k-pop and j-metal. I can speak 2 languages, which are english and tagalog. I also have many tattoos, mostly on my arm but I have a big spider one on my stomach. 
